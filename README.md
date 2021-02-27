@@ -1,1 +1,1 @@
-# stylish_decore
+# stylish_decoree
